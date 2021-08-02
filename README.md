@@ -1,0 +1,1 @@
+# leer-codigoQR-pytonh-discord
