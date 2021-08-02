@@ -1,1 +1,1 @@
-# leer-codigoQR-pytonh-discord
+<img src="https://i.imgur.com/X4Iqw5t.png">
